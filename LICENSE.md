@@ -1,4 +1,4 @@
-
+secure adopt me Scripts is the best adopt me Script, featuring teleport and auto-heal. Safe and powerful for all your needs.
 
 
 
